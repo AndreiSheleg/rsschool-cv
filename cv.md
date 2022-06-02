@@ -1,3 +1,6 @@
-# Andrei Sheleg
+# ANDREI SHELEG
 
-## Contacts
+## CONTACTS
+
+## EDUCATION
+Belarusian National Technical University
